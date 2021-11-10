@@ -1,4 +1,4 @@
-![gif](https://i.pinimg.com/originals/99/cc/bf/99ccbff44b32f9a820acf39d568b75a5.gif)
+![gif](https://64.media.tumblr.com/0357b948fd16f535d8edd692d5272fa5/tumblr_owou9sF64q1vviqkjo1_540.gifv)
 
 Chào 👋, tớ là nguyenhoangviet 
 
